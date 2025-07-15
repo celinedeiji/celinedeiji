@@ -2,4 +2,4 @@
 
 ᛝ⠀﹒⠀full profile,⠀⠀→⠀[carrd.co](https://celinedeijii.carrd.co/)⠀﹒✮
 
-𓉸⠀﹒⠀message me,⠀⠀→⠀[atabook](https://celina.atabook.org/)⠀゛ ⸝⸝.ᐟ⋆
+𓉸⠀﹒⠀sign my ata,⠀⠀→⠀[atabook](https://celina.atabook.org/)⠀゛ ⸝⸝.ᐟ⋆
